@@ -1,2 +1,2 @@
-hello
-THE NEW WORLD in 2089.
+hello, my lovely turtle.
+YOU BEST!
